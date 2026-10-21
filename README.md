@@ -1,2 +1,0 @@
-# animal-hospital-
-Ko bt=)
